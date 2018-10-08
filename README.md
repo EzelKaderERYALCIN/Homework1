@@ -1,2 +1,0 @@
-# Homework1
-Ezel Kader ERYALÇIN-2014010237013
